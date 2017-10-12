@@ -1,2 +1,0 @@
-# alperyasar.github.io
-project
